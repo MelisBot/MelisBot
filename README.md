@@ -9,7 +9,7 @@
 
 ****
 
-* ✌ Secretaria del CEUAMI.
+* ✌ Secretaria de CEUAMI.
 * 🎶 Amante de la música y el ciclismo.🚴‍♀️
 * 🎮 [Gamer en Twitch](https://www.twitch.tv/melis_13). 
 * 📋 Reguladora de Educación Básica. 
