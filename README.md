@@ -2,13 +2,14 @@
 
 ✨Hola!! / Hi!!😁😜
 
-* 👩‍💻 *NOMBRE*: MELISSA JIMÉNEZ GONZÁLEZ 
-* ✍ *Estudiante*: Universidad Autónoma Metropolitana Unidad Iztapalapa *UAM-I*
+* 👩‍💻 *NOMBRE*: MELISSA JIMÉNEZ GONZÁLEZ
+* 👩‍🎓 *Profesion:* Licenciatura en Computación
+* ✍ *Egresada*: Universidad Autónoma Metropolitana Unidad Iztapalapa *UAM-I*
 * 📍 *Localidad*: Xochimilco, CDMX
 
 ****
 
-* ✌ Vicepresidenta de CEUAMI.
+* ✌ Asesora de educacion basica.
 * 🎶 Amante de la música y el ciclismo.🚴‍♀️
 * 🎮 [Gamer en Twitch](https://www.twitch.tv/melis_13). 
 * 📋 Reguladora de Educación Básica. 
