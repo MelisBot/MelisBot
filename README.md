@@ -9,7 +9,7 @@
 
 ****
 * *Hobbys*
-* ✌ Asesora de educacion basica.
+* 🌾 Paseos en zonas naturales
 * 🎶 Amante de la música y el ciclismo.🚴‍♀️
 * 🎮 Gamer
 * 📋 Reguladora de Educación Básica. 
